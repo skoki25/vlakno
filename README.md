@@ -1,0 +1,12 @@
+vlakno
+======
+rhfege
+egtojeg
+pegkúerogp
+re
+lerpgf
+verg
+egpre
+lg
+rpg74
+rp
